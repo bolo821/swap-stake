@@ -1,0 +1,3 @@
+This website involves various functionalities on various networks such as swap, stake/reward...
+Enjoy this start up
+Bolo
